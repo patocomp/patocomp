@@ -11,5 +11,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he
 - ⚡ Fun fact: im are a pro player on brawl star
 -->
-![https://tenor.com/pt-BR/view/dynamike-gif-21918273]
+![<div class="tenor-gif-embed" data-postid="21918273" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/dynamike-gif-21918273">Dynamike Sticker</a>from <a href="https://tenor.com/search/dynamike-stickers">Dynamike Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>]
+  
+
+
+
 
