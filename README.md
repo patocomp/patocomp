@@ -1,4 +1,4 @@
-## Hi there welcome to my profile ‼️
+-## Hi there welcome to my profile ‼️
 
 **patocomp/patocomp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he
 - ⚡ Fun fact: im are a pro player on brawl star
 -->
-![imagem](https://tenor.com/pt-BR/view/dynamike-gif-21918273)
+![gif hd](https://tenor.com/pt-BR/view/dynamike-gif-21918273)
   
 
 
